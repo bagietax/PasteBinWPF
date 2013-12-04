@@ -1,0 +1,1 @@
+﻿Można wklejać na pastebina.
